@@ -1,1 +1,0 @@
-<meta http-equiv="refresh" content="0; url=https://t.me/+1SnQ-61Y6dI3ZTY1">
